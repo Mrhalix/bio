@@ -20,5 +20,5 @@ Using my phonenumber, +98 902 0902 333
 
 or [Instagram](https://instagram.com/mrhalix)
 
-### And BTW you can check my weblog at aminaleahmad.ir
+### And BTW you can check my blog at [aminaleahmad.ir](https://aminaleahmad.ir)
 unfortunately if you don't understand persian you need to use a translator to find out what's written in there.
